@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pipoucee
-- 👀 I’m interested in Android and iOS tECHNOLOGIE
+- 👀 I’m interested in Android and iOS Technologies
 - 🌱 I’m currently learning all new technologie
 - 💞️ I’m looking to collaborate on  
 - 📫 How to reach me  
